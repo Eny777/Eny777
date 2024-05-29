@@ -22,6 +22,6 @@
 ![](https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=WhatsApp&logoColor=white)
 ![](https://img.shields.io/badge/Spotify-1ED760?&style=for-the-badge&logo=spotify&logoColor=white)
 
-![](https://motionbgs.com/media/1953/monkey-d-luffy-straw-hat_312.gif)
-![](https://i.pinimg.com/originals/c7/51/91/c75191e231778c5ba1d96fbaec0154eb.gif)
-![](https://i.makeagif.com/media/12-20-2018/qCfCWR.gif)
+![](https://coisasdojapao.com/wp-content/uploads/2018/02/RobDuenas-death-note.jpg.webp)
+
+![](https://image.api.playstation.com/vulcan/ap/rnd/202104/0517/9AcM3vy5t77zPiJyKHwRfnNT.png)
